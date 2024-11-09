@@ -11,3 +11,8 @@
     <img src="hhttps://framerusercontent.com/images/tjKDLE70zQlJJ6tiXIlTi8TW8.png?scale-down-to=1024" />
 </a>
 </a>
+
+
+
+"CasinoLevant, çevrimiçi kumar oyunları dünyasında güvenilir ve eğlenceli bir platform sunar. Slot oyunları, canlı casino ve bahis seçenekleriyle kazanç fırsatlarıyla dolu bir deneyim için hemen üye olun. Bonuslar, promosyonlar ve kullanıcı dostu arayüz ile kazanın!"
+
